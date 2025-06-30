@@ -6,9 +6,9 @@
 
 kanār-e-āb khaḌā ḳhud se kah rahā hai koī
 gumāñ guzartā hai ye shaḳhs dūsrā hai koī
-	The word Kanaar-e-aab can be interpretated in two different ways, first one would be literal i.e. shore of a waterfront or it can be interpretated as someone being on the edge emotionally. 
-	While standing at the edge (either of his thought or the water body), he looks at his reflection and whispers to himself, that he doubts whether it is a different person in the reflection of his. He perhaps is caught suddenly by the fact of who he is or has become. The poet is in a way detached from himself and there's a sense of alienation from the self. 
-	When we are emotionally distressed we often go to places like a rivershore, the poet also seems to be in such a state perhaps to commit suicide and while rethinking this decision of his he is introspecting and talking to himself ""
+>The word Kanaar-e-aab can be interpretated in two different ways, first one would be literal i.e. shore of a waterfront or it can be interpretated as someone being on the edge emotionally. 
+>While standing at the edge (either of his thought or the water body), he looks at his reflection and whispers to himself, that he doubts whether it is a different person in the reflection of his. He perhaps is caught suddenly by the fact of who he is or has become. The poet is in a way detached from himself and there's a sense of alienation from the self. 
+>When we are emotionally distressed we often go to places like a rivershore, the poet also seems to be in such a state perhaps to commit suicide and while rethinking this decision of his he is introspecting and talking to himself ""
 
 havā ne toḌ ke patta zamīñ pe pheñkā hai
 ki shab kī jhiil meñ patthar girā diyā hai koī
