@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/vault-2-0-1/books/alaukik-alfaaz/mir/kya-hasil/","tags":["gardenEntry"]}
+{"dg-publish":true,"permalink":"/vault-2-0-1/books/alaukik-alfaaz/mir/kya-hasil/"}
 ---
 
 
